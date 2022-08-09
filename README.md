@@ -1,1 +1,0 @@
-# simsek-g.com
